@@ -1,0 +1,82 @@
+# RIIZE – Love 119
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+괜한 자존심 때문에
+끝내자고 말을
+해버린거야
+One, two, let’s go
+뺏긴 my heart,
+that girl’s a killer
+Love so good,
+feels like a thriller
+시작됐지
+이건 emergency
+One-one-nine, one-one-nine
+Save my life, save my life
+She sets me free
+이건 emergency love
+너는 마치 flashlight
+자꾸만 시선을 뺏겨
+많은 사람 속에서
+순간 너만 보였어
+다들 말하지, love is so sweet
+아직 난 뭔지 모르겠지 right now
+처음 느낀 이상한 떨림
+이건 진심 I’m not kidding
+친구이기엔 더
+deeper, deeper, deeper
+어쩌면 love song, yeah
+뺏긴 my heart,
+that girl’s a killer
+Love so good,
+feels like a thriller
+시작됐지
+이건 emergency
+One-one-nine, one-one-nine
+Save my life, save my life
+She sets me free
+이건 emergency love
+이상해 나 what do I do?
+너에 관한 건 뭐라도
+신경 쓰여 난 all day,
+넌 만들어 my day
+이 감정은 someday, 난 알고 싶어
+귓가에 울린, love is so sweet
+멈출 수 없이 빠져버린 나야
+네가 자꾸 궁금해 왜지?
+말도 안 돼, I’m not kidding
+시간이 갈수록
+깊어 깊어 깊어져
+가는 나잖아
+뺏긴 my heart,
+that girl’s a killer
+Love so good,
+feels like a thriller
+시작됐지
+이건 emergency
+One-one-nine, one-one-nine
+Save my life, save my life
+She sets me free
+이건 emergency love
+이건 뭘까?
+You know what I’m talking about
+왜 이렇게
+나의 맘이 어지러운 걸까?
+이 모든 게 내가 널 좋아하는 건가
+난 그럼 더 이상 끌고 싶지 않아
+다른 건
+Nothing but
+I want it all with you
+뺏긴 my heart,
+that girl’s a killer
+Love so good,
+feels like a thriller
+시작됐지
+이건 emergency
+One-one-nine, one-one-nine
+Save my life, save my life
+She sets me free
+이건 emergency love
+```
